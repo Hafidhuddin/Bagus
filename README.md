@@ -1,0 +1,2 @@
+# Bagus
+Hanya dia
